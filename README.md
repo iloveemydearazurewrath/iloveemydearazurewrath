@@ -16,7 +16,7 @@ ${\color{#617c8f}\textsf{ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤℐ  ℒ𝗈𝗏𝖾 𝗆
 
 
 
-[ 𝔈𝑙𝑙𝔦𝔢  ](https://github.com/SuicidalAngel) ㅤㅤ𓂃 𓈒𓏸ㅤㅤ[ ℛ𝑎𝔂    ](https://github.com/seraphicangelofinternet)  ${\color{#537D9F}\textsf{ㅤㅤㅤㅤㅤִֶָ. .. ࣪ㅤㅤ ִֶ𝒯he 𝑏𝑒𝑠𝑡 𝑡𝑟𝑖𝑜!! }}$
+[ 𝔈𝑙𝑙𝔦𝔢  ](https://github.com/SuicidalAngel) ㅤㅤ𓂃 𓈒𓏸ㅤㅤ[ ivor𝔂    ](https://github.com/ivoryyyyyyyyyyyyyyyyyy)  ${\color{#537D9F}\textsf{ㅤㅤㅤㅤㅤִֶָ. .. ࣪ㅤㅤ ִֶ𝒯he 𝑏𝑒𝑠𝑡 𝑡𝑟𝑖𝑜!! }}$
                               ${\color{#91BBC2}\textsf{ㅤ ㅤㅤ  ㅤㅤㅤ  ㅤㅤ  ㅤㅤ  ㅤ ㅤ  ㅤㅤㅤ      ㅤㅤ  ㅤㅤㅤ ㅤ  ㅤㅤ    ㅤㅤ ㅤ ℱ𝑜𝑙𝑙𝑜𝑤ㅤㅤㅤ⟡ㅤ}}$              
 
 
