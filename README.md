@@ -16,10 +16,5 @@ ${\color{#617c8f}\textsf{ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤℐ  ℒ𝗈𝗏𝖾 𝗆
 
 
 
-[ 𝔈𝑙𝑙𝔦𝔢  ](https://github.com/SuicidalAngel) ㅤㅤ𓂃 𓈒𓏸ㅤㅤ[ ivor𝔂    ](https://github.com/ivoryyyyyyyyyyyyyyyyyy)  ${\color{#537D9F}\textsf{ㅤㅤㅤㅤㅤִֶָ. .. ࣪ㅤㅤ ִֶ𝒯he 𝑏𝑒𝑠𝑡 𝑡𝑟𝑖𝑜!! }}$
-                              ${\color{#91BBC2}\textsf{ㅤ ㅤㅤ  ㅤㅤㅤ  ㅤㅤ  ㅤㅤ  ㅤ ㅤ  ㅤㅤㅤ      ㅤㅤ  ㅤㅤㅤ ㅤ  ㅤㅤ    ㅤㅤ ㅤ ℱ𝑜𝑙𝑙𝑜𝑤ㅤㅤㅤ⟡ㅤ}}$              
-
-
-[Ivory's sincere apologies ( ´△｀)](https://docs.google.com/document/d/1249hxZChKuUcDMJnXxoMapvkhiJfOuqafLnNaThDcSQ/edit?tab=t.0)
 
 This is still a wip , please be patient. 𐔌՞. .՞𐦯
