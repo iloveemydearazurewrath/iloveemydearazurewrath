@@ -1,4 +1,4 @@
-${\color{}\textsf{ㅤㅤㅤ 𓏵𓏵ㅤ }}$   ${\color{#6E969b}\textsf{ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤִֶָ. ..𓂃 ࣪ㅤㅤ ִֶָ་༘࿐ㅤㅤ𝒲elcome...ㅤㅤㅤㅤㅤㅤ i'm 𝒪dette or 𝒜imer𝓎  }}$ ${\color{#CEDADC}\textsf{ㅤㅤㅤㅤ . ݁₊  . ݁ ⟡ ݁  }}$ 
+${\color{}\textsf{ㅤㅤㅤ 𓏵𓏵ㅤ }}$   ${\color{#6E969b}\textsf{ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤִֶָ. ..𓂃 ࣪ㅤㅤ ִֶָ་༘࿐ㅤㅤ𝒲elcome...ㅤㅤㅤㅤㅤㅤ i'm 𝒪dette   }}$ ${\color{#CEDADC}\textsf{ㅤㅤㅤㅤ . ݁₊  . ݁ ⟡ ݁  }}$ 
 
 
 ${\color{#617c8f}\textsf{ㅤㅤㅤㅤNice to meet you   ㅤㅤ𖹭  ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ⊹ ࣪ ˖ ㅤㅤ }}$
